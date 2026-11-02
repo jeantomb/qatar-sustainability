@@ -1,0 +1,1 @@
+Hey, this is my first Github repo to store my HGSI 2nde Qatar Sustainability website FULLY VIBECODED WITH CLAUDE, and if Ms.Fujino manages to get here, honestly congratulations you caught me. Love ya'll.
